@@ -1,1 +1,3 @@
 # Assignment-2-Repo-4
+I went to a seminar in expo center Lahore here i meet  the Smit team. They guide me that Smit is providung a platform for the students who want to learn the latest and updated courses. So i have joiined the facebook page ad whatsapp group of the Smit Faisalabad. Before few days the calle dthe students a test and i have take part in the ONLINE TEST. bY THE GRACE OF gOD I HAVE PASSED THE EXAM.
+The smit called uo an orientation class it was a great pleasure and very informative.
